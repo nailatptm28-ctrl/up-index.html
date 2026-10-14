@@ -1,2 +1,2 @@
 # up-index.html
-repository 1
+tugas kka akifa naila putri (IX.1)
